@@ -29,10 +29,6 @@
 - Commonwealth Ombudsman - 2025-805525
 - Commonwealth Ombudsman - 2025-808427
 
-## Australian Signals Directorate
-
-- Further information provded May 2025
-
 ## Australian Human Rights Council (no criminal prosecution powers):
 
 - AHRC Report submitted – 28/3/23
@@ -51,4 +47,4 @@
 - Ref: CASE20248668
 - Ref: CASE20248668
 - Ref: CASE20253146
-- Earliest criminal complaint 2023 - in realtion to credible death threats agaisnt myself
+- Earliest criminal complaint 2023 
