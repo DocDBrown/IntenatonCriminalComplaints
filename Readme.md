@@ -1,7 +1,7 @@
 # Below is a list of reports:
 - not limited to crimes committed against my wife and not limited to stalking, intimidation, serious criminal vilifcaiton and extreme hate crimes under Australian law.
 - I am not publically accusing any individual - if you have feelings of guilt hang your head in shame rather that further retribution agaisnt victims
-- I reject the corrupt idea that victims of itnernational crime, are just having mental health prolbems, where there is objective evidence in Australia and overseas agaisnt perpetrators of criminal human rights violations
+- I reject the corrupt idea that victims of international crime, are just having mental health prolbems, where there is objective evidence in Australia and overseas agaisnt perpetrators of criminal human rights violations
 
 ## International Criminal Court
 
