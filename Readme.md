@@ -4,7 +4,9 @@
 - Not limited to crimes committed against my wife and I. Also not limited to stalking, intimidation, serious criminal vilifcaiton and extreme hate crimes under Australian law (although I note the hate crime laws are not retrospective prior to January 2026).
 - I am not publically accusing any individual - if you have feelings of guilt hang your head in shame rather that further retribution agaisnt victims
 - I reject the corrupt idea that victims of international crime, are just having mental health problems, where there is objective evidence in Australia and overseas against perpetrators of criminal human rights violations
-- List does not include AFP reports 
+- List does not include AFP reports
+- regardles of UNHRC or ICC investigations, international human rights abusers should be extradited where possible, given the systemic corruption in Australia
+  
 ## International Criminal Court
 
 - ID# 3b1de00f-bcca-4bd8-bd12-7862ff30201e
