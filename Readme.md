@@ -10,7 +10,7 @@
   
 ## United Nations Human Rights Council 
 
-- WHRC/30359 - March 2023
+- WHRC/30359 - March 2026
 - WHRC/16998 - May 2025
 - WHRC/16869 - May 2025
 - WHRC/16727 - April 2025
